@@ -1,1 +1,1 @@
-Translate for your mods <3
+Translation of your mods <3
